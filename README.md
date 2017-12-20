@@ -1,14 +1,3 @@
 # JansonJohn.github.io
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay
-## chenghao is a gay2233
-
-#by jansonjohn
+## 你今天看尧语录了吗
+#by pianzhi
